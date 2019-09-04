@@ -1,0 +1,3 @@
+Intenção 
+Sujeito
+Casal raiz 
